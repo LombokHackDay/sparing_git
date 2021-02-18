@@ -11,6 +11,3 @@
    Ampenan, Japan
 4. Adam Milando
    Mataram, Indonesa
-5. L. Gilang Obidia Ramdhani
-   Masbagik, Indonesia
- 
